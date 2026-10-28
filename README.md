@@ -6,8 +6,7 @@ hqewqeasd  ds
 gthdsfsdfsfsdfdfgdfgqweqwefsdfsf      dsssddd
         ddd
 asdasdsgtq3456789076543was# test9sdsdfsdfdsfasdassdsasdsdfsdsdfasdasdsasdasdasd  s
-hsdfdsfffsdfsdfsdfdsfasdasdasdasdasdasddfsdfasd    s
-gtsdfsdfsdeeasdasdasdasd    s
+hsdfdsfffsdfsdfsdfdsfasdasdasdasdasdasddfsdfasd    ss
 dcfvgbhnjk234567890մանուշակագույն ծուխsdfdfasdasdd   d
 adfasdsdfsdfsdfasd
 12344330987654321234567890865467883456789076543was# test9sdasdasdasdasdasded    d
