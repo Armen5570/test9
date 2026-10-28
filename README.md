@@ -1,7 +1,16 @@
 d     
         d ff
-gtq3456789076543was# tes t9sd   ddd
- 
+gtq3456789076543was# tes t9sd   dddHello GitHub Support,
+
+I merged my own pull request without any code review, but the YOLO achievement has not appeared on my profile.
+
+Repository: https://github.com/Armen5570/yolo
+Pull request: https://github.com/Armen5570/yolo/pull/1
+Profile: https://github.com/Armen5570
+
+Could you please check whether my achievement is eligible or whether the achievement update is delayed?
+
+Thank you.
  d dd
 hqewqeasd  ds 
 gthdsfsdfsfsdfdfgdfgqweqwefsdfsf      dsssddds 
