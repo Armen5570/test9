@@ -1,46 +1,4 @@
-d     
-        d ffs
-I merged my own pull request without any code review, but the YOLO achievement has not appeared on my profile.
 
-Repository: https://github.com/Armen5570/yolo
-Pull request: https://github.com/Armen5570/yolo/pull/1
-Profile: https://github.com/Armen5570
-
-Could you please check whether my achievement is eligible or whether the achievement update is delayed?
-
-Thank you.
- d dd
-hqewqeasd  ds 
-gthdsfsdfsfsdfdfgdfgqweqwefsdfsf      dsssddds 
-        ddds
-asdasdsgtq3456789076543was# test9sdsdfsdfdsfasdassdsasdsdfsdsdfasdasdsasdasdasd  s 
-hsdfdsfffsdfsdfsdfdsfasdasdasdasdasdasddfsdfasd    ss
-dcfvgbhnjk234567890մանուշակագույն ծուխsdfdfasdasdd   d
-adfasdsdfsdfsdfasds
-12344330987654321234567890865467883456789076543was# test9sdasdasdasdasdasded    d
-hsdfawdsdf  d
-մանուշակագույն ծուխմանուշակագույն ծուխմանուշաasgsdfկագույն ծուխմանուշակագույն ծուխմանուշակագու յն ծուխմանուշակագույն ծուխման ուշակագույն ծուխմանուշակագույն ծուխմանուշակագույն ծուխմանուշակագույն ծուխմանուշակաsdfssdfdfdfգույն ծsdferուխմանու  
-dcfvgbhnjk234567890մանուշակագույն ծուխsdf
-adf
-12344330987654321234567890865467883456789076543was# test9sd
-h
-մանուշակագույն ծուխմանուշակագույն ծուխմանուշակագույն ծուխմանուշակագույն ծուխմանուշակագույն ծուխմանուշակագույն ծուխմանուշակագույն ծուխմանուշակագույն ծուխմանուշակագույն ծուխմանուշակագույն ծուխմանուշակագույն ծerուխմանուշակագույն ծուխմանուշակագույն ծուխմանուշակագույն ծուխմանուշակագույն ծուխ
-gtմանուշակագույն ծուխմանուշակագույն qweqwr
-dcfvgbhnjk234567890qerw
-adfմանուշակագույն ծուխqwrwr
-qwr3456789076543was# test9sdմանուշակագույն ծուխ
-hմանուշակագույն ծուխմանուշակագույն ծուխմանուշակագույն ծուխ
-gth
-gtq3456789076543was# test9sd
-h
-gth
-gtq3456789076543was# test9sd
-h
-gthdsfsdfsfsdf
-gt
-dcfvgbhnjk234567890մանուշակագույն ծուխsdf
-adfasdsdfsdf
-12344330987654321234567890865467883456789076543was# test9sd
 h
 մանուշակագույն ծուխմանուշակագույն ծուխմանուշաasgsdfկագույն ծուխմանուշակագույն ծուխմանուշակագույն ծուխմանուշակագույն ծուխմանուշակագույն ծուխմանուշակագույն ծուխմանուշակագույն ծուխմանուշակագույն ծուխմանուշակաsdfssdfdfdfգույն ծerուխմանու
 dcfvgbhnjk234567890մանուշակագույն ծուխsdf
